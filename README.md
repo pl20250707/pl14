@@ -14,6 +14,6 @@
 选择我们，你将体验到高清、流畅、无广告、免费的最佳观看体验，随时观看经典与新片，享受无干扰的观影乐趣。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/pl20250707/pl14 ）</span>
 
 
